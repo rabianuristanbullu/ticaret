@@ -1,3 +1,0 @@
-# eticaret
-# eticaret
-# eticarett
